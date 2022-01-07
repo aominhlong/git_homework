@@ -6,4 +6,6 @@ Strategies
 1. Practice more often in small intervals.
 2. Follow the google calendar.
 
+More thoughts here
+
 Shoutout to my dog Lucas for always being so handsome and being supportive! My twin is awesome too.
